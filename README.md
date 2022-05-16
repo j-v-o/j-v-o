@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @j-v-o
 - 👀 I’m interested in ...work & learning 
-- 🌱 I’m currently learning ...Virtuozzo 
+- 🌱 I’m currently learning ...Jelastic PaaS 
 - 💞️ I’m looking to collaborate on ...tech-support 
 - Glory to Ukraine! 
 
