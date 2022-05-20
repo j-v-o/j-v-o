@@ -1,5 +1,5 @@
 Україна переможе!!!
-
+```
 Ой, у лузі червона калина похилилася,  /  Oi, u luzi chervona kalyna pokhylylasia,
 Чогось наша славна Україна зажурилася.  /  Chohos nasha slavna Ukraina zazhurylasia.
 А ми тую червону калину підіймемо,  /  A my tuiu chervonu kalynu pidiimemo,
@@ -19,4 +19,5 @@
 Та й прославить по всій Україні Січових Стрільців.  /  Ta y proslavyt po vsii Ukraini Sichovykh Striltsiv.
 А ми тую стрілецькую славу збережемо,    /  A my tuiu striletskuiu slavu zberezhemo, 
 А ми нашу славну Україну, гей, гей, розвеселимо!  /  A my nashu slavnu Ukrainu, hei, hei, rozveselymo!
-
+```
+(r)egards to https://www.youtube.com/watch?v=ZztmQsSAqfo 
