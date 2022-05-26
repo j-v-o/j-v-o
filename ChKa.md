@@ -21,3 +21,6 @@
 А ми нашу славну Україну, гей, гей, розвеселимо!  /  A my nashu slavnu Ukrainu, hei, hei, rozveselymo!
 ```
 (r)egards to https://www.youtube.com/watch?v=ZztmQsSAqfo 
+
+---
+https://moz.gov.ua/article/news/moz-ta-chervonij-hrest-vidkrivajut-rahunok-dlja-dopomogi-medikam 
