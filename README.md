@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ... Virtuozzo PaaS 
 - 💞️ I’m looking to collaborate on ... life supporting 
 - Glory to Ukraine! 
+- respect to http://www.hbr1.com/ 
 
 <!---
 j-v-o/j-v-o is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
