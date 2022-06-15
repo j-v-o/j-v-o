@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @j-v-o
-- 👀 I’m interested in ... work, learning, cooperating, travelling, dreaming 
+- 👀 I’m interested in ... work, learning, cooperation, travelling, dreaming, winning  
 - 🌱 I’m currently learning ... Virtuozzo PaaS 
 - 💞️ I’m looking to collaborate on ... life supporting 
 - Glory to Ukraine! 
