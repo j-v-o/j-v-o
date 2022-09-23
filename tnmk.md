@@ -1,2 +1,3 @@
 - [Krzysztof Kieslowski - Gadające głowy aka Talking Heads full movie (1980) - YouTube](https://www.youtube.com/watch?v=66CbSfuyxTU) 
-- 
+- _"..все тече як вода і ти лише вона, все тече згори вниз все мине колись.. "_ (с)ТНМК 
+-  
