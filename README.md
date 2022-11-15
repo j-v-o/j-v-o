@@ -2,6 +2,7 @@
 - 👀 I’m interested in ... work, learning, cooperation, travelling, dreaming, winning  
 - 🌱 I’m currently learning ... VoIP 
 - 💞️ I’m looking to collaborate on ... life supporting 
+
 Glory to Ukraine! 
 
 <!---
