@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @j-v-o
-- 👀 I’m interested in ... work, learning, cooperation, travelling, dreaming, winning  
+- 👋 Hi, dear all 
+- 👀 I’m interested in ... work, learning, cooperation, travelling, dreaming, and even more! 
 - 🌱 I’m currently learning ... VoIP 
 - 💞️ I’m looking to collaborate on ... life supporting 
 
