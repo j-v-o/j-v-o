@@ -1,5 +1,5 @@
 - 👋 Hi, dear all 
-- 👀 I’m interested in ... work, learning, cooperation, travelling, dreaming, and even more! 
+- 👀 I’m interested in ... creativity, learning, cooperation, travelling, dreaming, and even more! 
 - 🌱 I’m currently learning ... linux, api, devOps, etc 
 - 💞️ I’m looking to collaborate on ... life-long supporting 
 
